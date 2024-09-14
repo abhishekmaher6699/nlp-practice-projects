@@ -1,1 +1,1 @@
-Just some projects I made for practice lol
+Just some projects I made for practice lol 🐲
